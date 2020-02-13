@@ -13,3 +13,4 @@ Im Rahmen des 5R-Projekts, welches an unserem Oberschulzentrum derzeit läuft, h
 Dabei geben wir uns jedoch nicht nur mit einem kleinen, popeligen 0815-Hotel zufrieden! Wir machen selber eines: Durch gute zusammenarbeit der Klasse und den einzellnen Personen geht es Schritt für Schritt zu unserem ganz eigenen Insektenhotel
 
 # MADE IN SCHOOL!!!
+Yes, 100%
